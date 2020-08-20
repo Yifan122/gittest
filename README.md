@@ -8,15 +8,3 @@ dsdfds
 dfe
 dfse
 ada
-adf
-dfhfeu'
-sdfs
-dfjesf
-dfse
-dfds
-dfsfe
-dfwe
-dsf
-dfje
-dfs
-dfsjfe
